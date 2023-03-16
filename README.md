@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Cauca88 (Diogo Cauca Lemos)😁
+## Bem-vindo(a) ao perfil do Diogo Cauca Lemos 😁
 
  <div>
    <a href="https://github.com/cauca88">
